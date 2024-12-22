@@ -1,2 +1,0 @@
-# Publicity
-SEO
